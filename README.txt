@@ -1,2 +1,2 @@
 Hallo Lukas
-Der Enzo der bastard hat meinen Texmarker geklaut
+Der Enzo der bastard hat meinen Textmarker geklaut
